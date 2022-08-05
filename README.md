@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Brainiacbro
+- 👋 Hi, I’m @Brainiacbros
 - 👀 I’m a nerd
 - 🌱 I’m currently learning on TOP
 
